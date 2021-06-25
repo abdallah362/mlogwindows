@@ -1,1 +1,2 @@
-windows in mlog see my discord
+windows in mindostry logic
+see my discord
