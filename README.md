@@ -1,2 +1,2 @@
-windows in mindostry logic
+windows in mindostry logic windomlog
 see my discord
