@@ -1,3 +1,3 @@
 windows in mlog
-see my discord
-error 404
+\n see my discord
+\n error 404
